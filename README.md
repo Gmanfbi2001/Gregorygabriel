@@ -1,2 +1,4 @@
 # Gregorygabriel
 Finding out who has been hacking my phone and email and putting me on GitHub and other platforms and making money off me illegally.
+exposing the scared little narcissistic hackers for what they are. grown adults who still live with their mamma and are to scared to come out the their bedroom. also all help will be compensated when all civil suits are settled. if  anyone can provide proof of Gregory Gabriel on any platform or blog please email me or send me bysnail mail 12880 julingtonridge dr Jacksonville Florida 32258. youwill be compensated when all legal actions have been fullfilled. i have given no permission for anyone to use my name or video and audio recordings have never been given permission to use. so if you find anything please send it to me gregorygabriel972@gmail.com. lets put these criminals where they belong.
+
